@@ -28,4 +28,4 @@ If I ever get too obnoxious/annoying PLEASE let me know (✿◠‿◠) (✿◠�
 
 ***ROBLOX + MINECRAFT ARGS*** , ***ROBLOX MYTHS*** , ***MCYTS***
 
-*specifically the moon I rot behind, uu/lifesteal smp, itz_skeetplayz, collinlock16 ETC!!*
+*specifically the moon I rot behind, uu/lifesteal smp, itz_skeetplayz, collinlock16 ETC !!*
