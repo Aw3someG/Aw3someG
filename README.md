@@ -4,7 +4,7 @@
 
 ***(art creds: @ydmnnn on twt !!)***
 
-Ehii!! I go by Noah / Andrew etc. 
+Ehii!! I go by Noah or whatever character I'm cosplaying !!
 As for pronouns I prefer He/They
 
 If I ever get too obnoxious/annoying PLEASE let me know (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠) (✿◠‿◠)
