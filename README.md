@@ -23,6 +23,7 @@ If I ever get too obnoxious/annoying PLEASE let me know (✿◠‿◠) (✿◠�
 ## BYI !!
 * I don't usually use tonetags, unless necessary, so do lmk if you ever have a hard time understanding my tone when texting!
 * I am 7TEEN, turning 8TEEN
+* I tend to be awkward or overwhelming 
 
 ## INTERESTS :
 **I have a HEAVY fixation on things such as..**
