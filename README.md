@@ -15,9 +15,9 @@ If I ever get too obnoxious/annoying PLEASE let me know (✿◠‿◠) (✿◠�
 * Racist, sexist, ableist etc.
 * Invalidates a person's pronouns / gender / identity
 * Pedophile, sexualizes minors, jokes about r×pe etc.
+*Supports, participates, tolerates, or justify any of the above.*
 * 13 and below
 
-*Supports, participates, tolerates, or justify any of the above.*
 
 ## BYI !!
 * I don't usually use tonetags, unless necessary, so do lmk if you ever have a hard time understanding my tone when texting!
