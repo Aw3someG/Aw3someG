@@ -15,6 +15,7 @@ If I ever get too obnoxious/annoying PLEASE let me know (✿◠‿◠) (✿◠�
 * Racist, sexist, ableist etc.
 * Invalidates a person's pronouns / gender / identity
 * Pedophile, sexualizes minors, jokes about r×pe etc.
+
 *Supports, participates, tolerates, or justify any of the above.*
 * 13 and below
 
