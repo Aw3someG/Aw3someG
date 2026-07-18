@@ -1,6 +1,6 @@
-# " Coin-Operated Boy "
+# " Hey , Hipster. "
 
-![Gjf5SYybMAAr05B](https://pbs.twimg.com/media/G7zlSC-aMAQb9hR?format=jpg&name=large)
+![[Gjf5SYybMAAr05B]([https://pbs.twimg.com/media/G7zlSC-aMAQb9hR?format=jpg&name=large](https://pbs.twimg.com/media/HImzcqebsAEByBs?format=jpg&name=4096x4096))](https://pbs.twimg.com/media/HImzcqebsAEByBs?format=jpg&name=4096x4096)
 
 ***(art creds: @ydmnnn on twt !!)***
 
@@ -22,12 +22,12 @@ If I ever get too obnoxious/annoying PLEASE let me know (✿◠‿◠) (✿◠�
 
 ## BYI !!
 * I don't usually use tonetags, unless necessary, so do lmk if you ever have a hard time understanding my tone when texting!
-* I am 7TEEN, turning 8TEEN
+* I am 8TEEN
 * I tend to be awkward or overwhelming 
 
 ## INTERESTS :
 **I have a HEAVY fixation on things such as..**
 
-***ROBLOX + MINECRAFT ARGS*** , ***ROBLOX MYTHS*** , ***MCYTS***
+***ROBLOX + MINECRAFT ARGS*** , ***ROBLOX MYTHS*** , ***MCYTS*** , ***JRWI*** , ***CARTOONS***
 
-*specifically the moon I rot behind, uu/lifesteal smp, itz_skeetplayz, collinlock16 ETC !!*
+*specifically the moon I rot behind, HOMESTUCK, itz_skeetplayz, unwitness protection program , adventure time ETC !!*
