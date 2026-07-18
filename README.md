@@ -2,7 +2,7 @@
 
 ![[Gjf5SYybMAAr05B]([https://pbs.twimg.com/media/G7zlSC-aMAQb9hR?format=jpg&name=large](https://pbs.twimg.com/media/HImzcqebsAEByBs?format=jpg&name=4096x4096))](https://pbs.twimg.com/media/HImzcqebsAEByBs?format=jpg&name=4096x4096)
 
-***(art creds: @ydmnnn on twt !!)***
+***(art creds: @fishieguy on twt !!)***
 
 Ehii!! I go by Noah or whatever character I'm cosplaying !!
 As for pronouns I prefer He/They
